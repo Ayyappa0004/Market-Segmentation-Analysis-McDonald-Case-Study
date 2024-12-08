@@ -1,0 +1,1 @@
+# Market-Segmentation-Analysis-McDonald-Case-Study
